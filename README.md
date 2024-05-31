@@ -1,4 +1,4 @@
-![1679083748046](https://github.com/AbdullahBilir/AbdullahBilir/assets/155636883/c38807be-c4b8-4cb0-afcc-e6e25457841d)
+![1679083748046](https://github.com/AbdullahBilir/AbdullahBilir/assets/155636883/0f11991d-d6d7-4f27-8475-cfd23470f251)
 
 
 <h1 align="center">Hi 👋, I'm Abdullah Bilir</h1>
